@@ -21,5 +21,5 @@ I’m transitioning from a 4-year law enforcement career to cybersecurity. I'm c
 
 ## 🔗 Connect With Me
 
-- [LinkedIn](www.linkedin.com/in/brandon-jones-056b602b2) 
+- [LinkedIn](http://www.linkedin.com/in/brandon-jones-056b602b2) 
 - Email: brandonmjones0210@gmail.com
